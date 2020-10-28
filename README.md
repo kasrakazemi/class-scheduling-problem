@@ -1,2 +1,2 @@
 # kaka
-My public codes sets here
+you can access projects by it's names and more info can be found there!
